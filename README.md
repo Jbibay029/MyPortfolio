@@ -1,6 +1,11 @@
 ## Jonathan D. Bibay
 
 ## Education
+New Era University
+Senior High School
+2017 - 2019
+
+New Era University
 BS Computer Science
 2019 - Present
 
